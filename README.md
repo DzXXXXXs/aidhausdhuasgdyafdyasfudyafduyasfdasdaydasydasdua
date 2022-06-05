@@ -1,2 +1,0 @@
-# aidhausdhuasgdyafdyasfudyafduyasfdasdaydasydasdua
-BFscript
